@@ -1,0 +1,2 @@
+# Afnan-Self
+Cuman gabut
